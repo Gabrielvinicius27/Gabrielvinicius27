@@ -30,6 +30,6 @@ Foi aí que me apaixonei por tecnologia, competições, e minha vontade de apren
 
 Como me encontrar:  
  - E-mail: gvinicius2013.gv@gmail.com;
- - Linkedin: https://www.linkedin.com/in/gabriel-vinicius-a6a093149.
+ - Linkedin: https://www.linkedin.com/in/gabrielviniciusoliveira/
 
 Vamos aprender e evoluir juntos!
